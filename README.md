@@ -1,4 +1,4 @@
-# Skills in the Calornia GeoDesign Team
+# Skills in the Calfornia GeoDesign Team
 
 Inventory of Skills in CA TNC Design team
 
